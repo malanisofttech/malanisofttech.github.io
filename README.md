@@ -1,1 +1,0 @@
-# malanisofttech.github.io
